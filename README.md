@@ -28,5 +28,5 @@
 3、首页提供的工具都是非常的丰富，让用户直接就可以去选择。
 
  
-![image](http://pic.289.com/up/2021-11/20211130144420885970.jpg)
+![image](https://github.com/whateverlj/wngjx/blob/main/Screenshot_20220625_131955_com.wn.app.jpg)
  
