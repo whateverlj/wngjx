@@ -29,4 +29,7 @@
 
  
 ![image](https://github.com/whateverlj/wngjx/blob/main/Screenshot_20220625_131955_com.wn.app.jpg)
+![image](https://github.com/whateverlj/wngjx/blob/main/Screenshot_20220625_132002_com.wn.app.jpg)
+![image](https://github.com/whateverlj/wngjx/blob/main/Screenshot_20220625_132037_com.wn.app.jpg)
+![image](https://github.com/whateverlj/wngjx/blob/main/Screenshot_20220625_132047_com.wn.app.jpg)
  
